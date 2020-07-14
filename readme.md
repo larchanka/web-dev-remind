@@ -6,4 +6,4 @@
 
 ## Видео
 
-[https://www.youtube.com/playlist?list=PLIb4jh0gYNwWRaG_Z8RY05yVEvfTTg1Mm](Youtube)
+[Youtube](https://www.youtube.com/playlist?list=PLIb4jh0gYNwWRaG_Z8RY05yVEvfTTg1Mm)
